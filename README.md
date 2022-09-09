@@ -1,0 +1,2 @@
+# exerciciosfolha2B
+EXERCICIOS DA SEGUNDA FOLHA PARTE2
